@@ -5,7 +5,29 @@ ANDROID APK - YOUR USING
 Server ZIP: https://codeload.github.com/LekmaDev/BS-26/zip/refs/heads/main
 
 ## Requirements: ##
-1. a brain...
+1. a brain...nananansmzzznxnx x d d. t f t cy co g uvuvuvuctx
+2. t
+3. ctctxy
+4. d
+
+5. s
+
+
+
+s
+
+s
+s
+ss
+s
+sss
+
+s
+dc
+t
+vyvyvhvhv
+h
+cg
 
 ## Work: ##
 1. Friend (add, status, remove)
